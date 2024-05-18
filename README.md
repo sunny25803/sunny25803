@@ -1,4 +1,2 @@
 - 👋 Hi, I’m @sunny25803 Serein-Zhang
-- 👀 I’m a high school student from china interested in film and television production.
-- 🌱 I’m currently Applying NYU
-- 📫 You can reach me via https://www.ssap.fun/ or sereinzhang@icloud.com
+- 👀 I’m a collage student from U.S interested in film and television production.
